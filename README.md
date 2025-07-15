@@ -1,4 +1,4 @@
-# Hollow-knight-Godhome-acces
+# Hollow-knight-Godhome-acceshttps://github.com/TMCyoan/Hollow-knight-Godhome-acces/blob/main/README.md
 Hollow knight Instant acces to Godhome with All charms, All spells maxed, Pure nail maxed, All bosses unlocked.
 ===============================================Step by step to replace your save with no problems====================================================
                                            -                       *Step 1*                         -
