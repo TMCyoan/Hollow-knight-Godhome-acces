@@ -32,6 +32,6 @@ easily corrupted :/
 
 
 Finaly Thanks to Bloodorca with he's site that can let us code the save of Hollow Knight dodging the crypted version
-                                                           ♥https://bloodorca.github.io/hollow/♥
+                                                           ♥ https://bloodorca.github.io/hollow/ ♥
 
                                                                           ♥  HAVE FUN ♥
